@@ -5,7 +5,8 @@ We are very curious about your existence and how we can cooperate with each othe
 Also, globally, we human beings share similar interest about the whole universe, so if you guys want to know more about us, please respond to this message.
 We are uncertain when you will receive this message and when you will send the message to us, but we look forward to have interaction with you.
 Human beings are very nice and therefore feel free to give us signal that you are approaching to Earth.
-Thanks
+
+Thanks!
 
 Best,
 
